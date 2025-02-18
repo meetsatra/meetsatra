@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **meetvsatra@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1diuFihal-uZKJQcuFFiGjPEm4OImincp/view?usp=sharing](https://drive.google.com/file/d/1diuFihal-uZKJQcuFFiGjPEm4OImincp/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1NVH8TvupxdwZo-nwpgIF0EOLXJalizva/view?usp=sharing](Resume)
 
 - ⚡ Fun fact **I sing! https://www.instagram.com/meet.sings/**
 
